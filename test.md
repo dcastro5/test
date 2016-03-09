@@ -3,7 +3,7 @@ _Daniel de Castro_
 ###SLIDE NOTES
 
 **1**  
-_Carel Control in Mexico_
+_Cartel Control in Mexico_
 
 **2**  
 _Why?_  
@@ -32,4 +32,25 @@ Born in Sinaloa, east of La Paz, across Gulf.
 Operates out of Baja y Tijuana -> Mexicali.
 Most violent.  
 They take it seriously -> hit teams, enforcers from street gangs; assassinate who use corridor without tax to AFO.  
+Employ radio scanners, line taps & hackers + automatic weaponry.  
+Once tried to assassinate El Chapo Guzman at the airport, killed Cardinal by accident.  
 
+**6**  
+_Pictures_  
+AFO = Green;  
+Lost ground to the other guys out of Sinaloa, the Sinaloa Federation -> El Chapo
+
+**7**
+_Sinaloa Federation_  
+Led by El Chapo, who, ironically, promotes dealmaking over bloodshed.  
+Their main U.S. entry-point is Nogales, adjacent border towns in AZ and Mexico.  
+They also use Chicago as a sort of U.S. base, the Costco of Cocaine; Chicago has over 100,000 street gang members; south side.  
+El Universal accused the DEA of cooperating with Sinaloa; when closest (’06-’12), most violence & control.
+
+**8**  
+_Pictures_
+Yellow = Sinaloa Federation  
+Red = Gulfo  
+Blue = Juarez  
+
+**9**  
